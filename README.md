@@ -1,2 +1,2 @@
-# NAME:
-# STUDENT ID:
+# NAME:ปัณณ์ กิตินา
+# STUDENT ID:680610692
